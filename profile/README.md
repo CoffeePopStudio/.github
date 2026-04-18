@@ -1,6 +1,6 @@
-### 🎉 欢迎来到 Minecraft MikuDream Server Community！
+### 🎉 欢迎来到 Coffeepop Studio！
 
-你好！欢迎来到 Minecraft MikuDream Server Community，这是服务器的管理创建的社区
+你好！欢迎来到 Coffeepop Studio
 
 我们会在这里一起制作一些有趣的关于 Minecraft，甚至是其他的一些的小东西，如果你感兴趣的话可以来看看！
 
